@@ -1,2 +1,0 @@
-Dear Parent,
-    From time to time, part of a child's growing process involves making mistakes at school. The purpose of this report is to inform you of action taken by the school staff to help your child correct his/her mistakes. You are encouraged to discuss this action with your child and to support the action. Please sign this copy and return it to school.
