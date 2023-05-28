@@ -1,6 +1,8 @@
-## Hi. I'm altude.
+## Hi. I'm Levi.
 
 You can find me at [`altude.is-a.dev`](https://altude.is-a.dev).  
+
+I go by either l3verrr, levi, or altude online 🙂.
 
 I'm a 14 year-old Svelte enthusiast and coffee nerd from Seattle looking for something to do. If you'd like to collaborate on something, I'm open at [altude@skiff.com](mailto:altude@skiff.com?subject=I%27d%20like%20to%20collaborate%20with%20you!).  
 
